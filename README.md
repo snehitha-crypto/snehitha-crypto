@@ -1,4 +1,4 @@
-Hi there, I'm Snehitha Sri 👋
+Hi there, I'm Snehitha 👋
 
 👩‍💻 About Me
 
